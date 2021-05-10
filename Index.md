@@ -1,1 +1,0 @@
-# mittelmax-github.io
